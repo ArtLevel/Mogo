@@ -11,4 +11,4 @@
 
 ![Screenshot 2023-06-26 at 13-20-40 MoGo](https://github.com/ArtLevel/Mogo/assets/124143546/9ef0cbb5-3b02-4e18-b145-98f9266f0d65)
 
-![Uploading Screenshot 2023-06-26 at 13-21-28 MoGo.png…]()
+![Screenshot 2023-06-26 at 13-21-28 MoGo](https://github.com/ArtLevel/Mogo/assets/124143546/159fdc8f-1bbf-46b6-9e71-40cbadaa3e40)
